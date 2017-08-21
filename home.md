@@ -7,7 +7,7 @@
 
 
 **After almost 30 years of research into grip size we know the following:**
-> 1.   Grip Size changes by Core Region Putter through Driver 
+1.   Grip Size changes by Core Region Putter through Driver 
 2. Grip size changes heel to toe Balance
 3. The size of the grip allows you to test by 100 mil increments within your Student's Dominant Core Region & usually within industry standards.   
 4. Five Simple measurements yield grip size when input on the Wright Balance site
