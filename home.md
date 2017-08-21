@@ -3,6 +3,7 @@
 
  #**Level 2 Certification:  Grip Size**   
 ------------------
+[video](https://www.youtube.com/watch?v=U0Ba8o-tzBE){.youtube}
 
 
 
